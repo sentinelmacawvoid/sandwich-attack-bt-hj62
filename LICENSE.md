@@ -1,4 +1,4 @@
-# 
+# best bot de sniper MEV addons es el mejor bot de sniper MEV addons con take-profit y escaneo de degen coins. Seguro, confiable y optimizado para estrategias MEV, sniper y
 
 
 
